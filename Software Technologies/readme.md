@@ -1,1 +1,2 @@
-![461168408_1004535964905537_694711079998344216_n](https://github.com/user-attachments/assets/ff4fd344-39fe-4102-943a-e7a4f669b47a)
+
+![Software_Technologies](https://github.com/user-attachments/assets/0ada8820-c1e3-4756-aa1e-c160cd2a455b)
