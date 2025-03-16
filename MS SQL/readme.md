@@ -1,4 +1,1 @@
-![imgonline-com-ua-compressed-H49BW0PmhnDM](https://github.com/user-attachments/assets/7d510528-13ae-4ebd-9a69-7cc1bd372ce2)
-
-*******************************************************************************************************************************************
-![C-Sharp-DB](https://github.com/user-attachments/assets/45cddec9-a3f1-45e5-bd7b-f9792e6b4db4)
+![70cca080-3570-11eb-9b35-28e50f99c36a](https://github.com/user-attachments/assets/352bbe8c-2717-49b2-9e3c-8cecddc2b7f1)
