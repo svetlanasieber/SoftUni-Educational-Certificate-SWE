@@ -1,1 +1,1 @@
-![imgonline-com-ua-compressed-AZ7woueWHz](https://github.com/user-attachments/assets/d556bbab-6211-4930-b8e2-c5dddd4f54fd)
+![473633332_1086710233354776_5861039762292097320_n](https://github.com/user-attachments/assets/778b95db-7298-4e1e-8dc7-30140d84f65f)
